@@ -1,1 +1,1 @@
-# Magic-Pre-Demo
+# Magic-Pre-Demo-Solution
